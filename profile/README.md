@@ -1,5 +1,14 @@
 ## Hi there 👋
 
+Anyone can be a writer.
+
+We're developing the future of mobile story telling & writing.
+
+At times, we are looking to add talented individuals to our team.
+
+**Current job openings:**
+None at this time
+
 <!--
 
 **Here are some ideas to get you started:**
