@@ -1,13 +1,14 @@
 ## Writeout
 
-Anyone can be a writer.
+Your words have the power to win.
 
-We're developing the future of mobile story telling & writing.
+Website: https://writeout.co
 
 At times, we are looking to add talented individuals to our team.
 
 **Current job openings:**
-None at this time
+
+
 
 <!--
 
